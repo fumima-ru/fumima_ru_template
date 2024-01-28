@@ -1,0 +1,1 @@
+# fumima_ru_template
